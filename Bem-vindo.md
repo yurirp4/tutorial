@@ -22,7 +22,5 @@
 
 ► **📥 bem-vindo**
 
-► **💭chat-principal💭**
-
 
 E Pronto ![](https://i.imgur.com/yOnLrJf.png).
